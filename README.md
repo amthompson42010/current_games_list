@@ -15,6 +15,21 @@
 ## [PS5](./PS5.md)
 <br/>  
 
+## [PSP](./PSP.md)
+<br/>  
+
+## [Xbox Original](./xboxOG.md)
+<br/>  
+
+## [Xbox 360](./xbox360.md)
+<br/>  
+
+## [Xbox Series S](./xboxseriesS.md)
+<br/>  
+
+## [Gamecube](./Gamecube.md)
+<br/>  
+
 ## [Dreamcast](./Dreamcast.md)
 <br/>  
 
@@ -30,3 +45,29 @@
 ## [NES](./NES.md)
 <br/>  
 
+## [SNES](./SNES.md)
+<br/>  
+
+## [N64](./N64.md)
+<br/>  
+
+## [3DS](./3DS.md)
+<br/>  
+
+## [DS](./DS.md)
+<br/>  
+
+## [GBA](./GBA.md)
+<br/>  
+
+## [GB](./GB.md)
+<br/>  
+
+## [Switch](./Switch.md)
+<br/>  
+
+## [Commodore 64](./Commodore64.md)
+<br/>  
+
+## [Atari 2600](./Atari.md)
+<br/>  
