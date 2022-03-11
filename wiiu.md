@@ -1,0 +1,18 @@
+- Pac-Man and teh Ghostly Adventures 2
+- Snoopy's Grand Adventure
+- The Wonderful 101
+- Mario Tennis Ultra Smash
+- Pac-Man and the Ghostly Adventures
+- Star Fox Zero
+- Star Fox Guard
+- Super Mario Maker
+- Donkey Kong Country Tropical Freeze
+- Tokyo Mirage Sessions #FE
+- Captain Toad: Treasure Tracker
+- Super Mario: 3D World
+- New Super Luigi U
+- New Super Mario Bros. U
+- The Legend of Zelda: The Wind Waker
+- Pokken Tournament
+- Kirby and the Rainbow Curse
+- 

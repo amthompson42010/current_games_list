@@ -1,0 +1,63 @@
+- MediEvil 2
+- Hydro Thunder
+- Tenchu: Stealth Assassins
+- Spongebob Squarepants Supersponge
+- Tony Hawk's Pro Skater
+- Animorphs: Shattered Reality
+- Tony Hawk's Pro Skater 3
+- The World Is Not Enough
+- Wild Arms
+- Warriors of Might and Magic
+- Tomb Raider III
+- Tomb Raider II
+- Tomb Raider: The Last Revelation
+- Time Crisis
+- Star Wars Rebel Assault II
+- Spyro: Year of the Dragon
+- Spyro The Dragon
+- Spider-Man
+- Breath of Fire III
+- Blaster Master Blasting Again
+- The Cat in the Hat
+- Chrono Cross
+- Contra Legacy of War
+- CTR (Crash Team Racing)
+- Crash Bandicoot
+- Crash Bandicoot 2: Cortex Strikes Back
+- A Bug's Life
+- Magical Racing Tour
+- Tarzan
+- Treasure Planet
+- Die Hard Trilogy
+- The Dukes of Hazzard: Racing for Home
+- Duke Nukem Time to Kill
+- Dragon Tales Dragon Seek
+- South Park
+- Rugrats in Paris: The Movie
+- Rocket Power Team Rocket Rescue
+- Road Rash 3D
+- R4 Ridge Racer Type 4
+- Resident Evil 3 Nemesis
+- Resident Evil 2
+- Resident Evil Director's Cut
+- Driver 2
+- EvilZone
+- Final Fantasy Anthology
+- Frogger
+- Gran Turismo
+- Rayman 2: The Great Escape
+- Rampage 2 Universal Tour
+- Power Rangers Time Force
+- Planet of the Apes
+- Oddworld: Abe's Exodus
+- Motocross Mania 2
+- Metal Gear Solid
+- Mega Man 8
+- Gran Turismo 2
+- Grand Theft Auto
+- Harry Potter and the Sorcerer's Stone
+- Jeopardy!
+- The Legend of the Dragoon
+- MediEvil
+- Mega Man X5
+- Mega Man X6

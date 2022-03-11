@@ -1,0 +1,53 @@
+- Burnout Legends
+- MX vs ATV Untamed
+- Wipeout Pure
+- Untold Legends: Brotherhood of the Blade
+- Ridge Racer
+- Ace Combat: Skies of Deception
+- Kingdom Hearts: Birth by Sleep
+- Need for Speed: Pro Street
+- Crazy Taxi: Fare Wars
+- ATV Offroad Fury: Blazin Trails
+- Secret Agent Clank
+- The Hustle: Detroit Streets
+- Pirates of the Caribbean At Worlds End
+- Flatout Head On
+- Grand Theft Auto Chinatown Wars
+- Disgaea: Afternoon of Darkness
+- MX vs ATV On The Edge
+- Justice League Heroes
+- Lego Indiana Jones 2: The Adventure Continues
+- Madden NFL 07
+- Harry Potter and the Half Blood Prince
+- Monster Hunter Freedom 2 (EN)
+- Juiced Eliminator
+- X-Men Origins: Wolverine
+- Pirates of teh Carribean: Dead Man's Chest
+- Sonic Rivals 2
+- Miami Vice The Game
+- Medievil Resurrection
+- Lumines II
+- The Lord of the Rings Aragorn's Quest
+- Final Fantasy
+- Patapon
+- NCAA Football 10
+- Dungeon Siege: Throne of Agony
+- Daxter
+- Crisis Core - Final Fantasy VII
+- Call of Duty: Roads to Victory
+- Army of Two: 40th Day
+- Need for Speed Underground Rivals
+- Tom Clancy's Ghost Recon Predator
+- NFL Street 2 Unleashed
+- Star Wars Battlefront Renegade Squadron
+- Star Ocean: First Departure
+- SSX on tour
+- SOCOM Fireteam Bravo 3
+- Killzone Liberation
+- Monster Hunter Freedom 2 (JP)
+- SOCOM Fireteam Bravo 2
+- Prince of Persia Revelations
+- Scarface The Game
+- Brothers in Arms D-Day
+- Avatar The Game
+- Ghost Rider the game

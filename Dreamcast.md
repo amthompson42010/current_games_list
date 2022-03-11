@@ -1,0 +1,34 @@
+- Centipede
+- NBA 2K
+- Tom Clancy's Rainbow Six
+- Tony Hawk's Pro Skater
+- Trickstyle
+- Shenmue
+- WWF Attitude
+- Sonic Adventure
+- Rippin Riders
+- Tomb Raider: The Last Revelation
+- Crazy Taxi
+- Dino Crisis
+- South Park Chef's Luv Shack
+- Draconus Cult of the Wyrm
+- MS. Pac-man maze madness
+- NFL 2K
+- Unreal Tournament
+- The House of the Dead 2
+- Speed Devils
+- Ready 2 Rumble Boxing
+- Kiss Psycho Circus
+- Evil Dead: Hail to the King
+- Blue Stinger
+- Legacy of Kain: Soul Reaver
+- Test Drive 6
+- World Series Baseball 2K
+- Carrier
+- Disney/Pixar's Toy Story 2: Buzzlightyear to the rescue
+- Power Stone 2
+- Resident Evil Code Veronica
+- Spawn
+- Star Wars Demolition
+- Tomb Raider: Chronicles
+- Worms Armageddon
