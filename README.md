@@ -27,7 +27,7 @@
 ## [Xbox Series S](./xboxseriesS.md)
 <br/>  
 
-## [Gamecube](./Gamecube.md)
+## [Gamecube](./GameCube.md)
 <br/>  
 
 ## [Dreamcast](./Dreamcast.md)
