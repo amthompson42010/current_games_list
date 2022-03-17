@@ -18,7 +18,7 @@
 ## [PSP](./PSP.md)
 <br/>  
 
-## [Xbox Original](./xboxOG.md)
+## [Xbox Original](./Xbox.md)
 <br/>  
 
 ## [Xbox 360](./xbox360.md)
@@ -36,7 +36,7 @@
 ## [Sega Genisis](./Genisis.md)
 <br/>  
 
-## [WII](./WII.md)
+## [WII](./wii.md)
 <br/>  
 
 ## [WIIU](./wiiu.md)

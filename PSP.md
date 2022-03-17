@@ -51,3 +51,8 @@
 - Brothers in Arms D-Day
 - Avatar The Game
 - Ghost Rider the game
+- Pixel Junk Monsters Deluxe
+- 50 Cent Bulletproof
+- Jackass the Game
+- Twisted Metal Head-On
+- Dynasty Warriors Strikeforce
