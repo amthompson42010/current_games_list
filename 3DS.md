@@ -1,0 +1,30 @@
+- Super Mario Maker 3DS
+- Starfox 64
+- Zelda Tri Force Heroes
+- Super Smash Bros 3DS
+- Bravely Second
+- Pokemon Ultra Sun
+- Metroid Samus Returns
+- Zelda: A Link Between Worlds
+- Donkey Kong Country Returns 3D
+- Zelda Majoras Mask 3D
+- Pokemon Sun
+- Bravely Default
+- Pokemon Alpha Sapphire
+- Luigi's Mansion Dark Moon
+- Fire Emblem Fates Birthright
+- Super Mario 3D Land
+- Monster Hunter 4 Ultimate
+- Tom Clancy's Splinter Cell 3D
+- Pokemon Y
+- New Super Mario Bros 2
+- Batman Arkham Origins Blackgate
+- Persona Q Shadow of the Labyrinth
+- Teenage Mutant Ninja Turtles: Master Splinter's Training Pack
+- The Adventures of Tin Tin The Game
+- Angry Birds Star Wars
+- Paddington Adventures in London
+- Pokemon Mystery Dungeon Gates to Infinity
+- Kid Icarus Uprising
+- Big Hero 6
+- New Super Mario Bros 

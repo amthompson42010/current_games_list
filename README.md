@@ -57,10 +57,13 @@
 ## [DS](./DS.md)
 <br/>  
 
-## [GBA](./GBA.md)
+## [GBA](./GameboyAdvanced.md)
 <br/>  
 
-## [GB](./GB.md)
+## [GB](./Gameboy.md)
+<br/>  
+
+## [GB](./GameboyColor.md)
 <br/>  
 
 ## [Switch](./Switch.md)

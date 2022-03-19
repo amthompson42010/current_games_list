@@ -1,0 +1,156 @@
+- Super Mario 3D World / Browser's Fury
+- Marvel Ultimate Alliance 3
+- The Legend of Zelda Breath of the Wild
+- Fire Emblem Three Houses
+- Pikmin 3
+- Pokemon Shinning Pearl
+- Metroid Dread
+- Captain Toad Treasure Tracker
+- Super Mario Odyssey
+- Shin Megami Tensei V
+- Mario and Sonic At the Olympic Games
+- Megaman Zero/2X Legacy Collection
+- Super Smash Bros Ultimate
+- New Super Mario Bros U Deluxe
+- Pokemon Legends Arceus
+- Kirby Star Allies
+- Paper Mario The Oragami King
+- Astral Chain
+- Oddworld Collection
+- Who Wants to be a Millionaire
+- Sonic Colors Ultimate
+- Yoshi's Crafted World
+- The Legend of Zelda Link's Awakening
+- Cruis'n Blast
+- Super Mario 3D Allstars
+- Mario Kart 8
+- Sine Mora EX
+- Project Starship X
+- Octopath Traveler
+- Doom 3
+- Traingle Strategy
+- Blaster Master Zero
+- Blaster Master Zero 2
+- Big Buck Hunter Arcade
+- Scott Pilgrim vs. The World
+- The Messenger
+- No More Heroes
+- Contral Anniversary Collection
+- Castlevania Anniversary Collection
+- The Witcher 3 The Wild Hunt Complete Edition
+- Saints Row IV: Re-Elected
+- Figment
+- Uno
+- American Fugitive
+- Vasara Collection
+- Star Wars Knights of teh Old Republic
+- No More Heroes 2: Desperate Struggle
+- Pokemon Shield
+- Luigi's Mansion 3
+- Boyfriend Dungeon
+- Road 96
+- Taiko no Tatsujin Drum'n'Fun!
+- Resident Evil 6
+- Borderlands The Pre-sequel! Ultimate Edition
+- Monster Hunter Rise
+- .CAT
+- Trine Enchanted Edition
+- Amnesia Collection
+- Ni No Kuni Wrath of the White Witch
+- Monopoly
+- Mario Golf Super Rush
+- The Legend of Zelda Skyward Sword HD
+- Monster Huner Stories 2
+- Okami HD
+- Xenoblade Chronicles Definitive Edition
+- The Binding of Issac: Aferbirth+
+- Stardew Valley
+- Spyro Reignited Trilogy
+- Slay the Spire
+- Severed
+- My Friend Pedro
+- Mario + Rabbids: Kingdom Battle
+- Katana Zero
+- Just Shapes and Beats
+- Hollow Knight
+- Enter the Gungeon
+- Donkey Kong Country: Tropical Freeze
+- Dragon Quest Builders
+- Crash Bandicoot: N-Sane Trilogy
+- Celeste
+- Bayonetta
+- Bravely Default II
+- Axiom Verge
+- Bayonetta 2
+- Borderlands 2: Game of the Year Edition
+- Brawlhalla
+- Burnstar
+- Car Mechanic Simulator
+- Castle of Heart
+- Clubhouse Games: 51 Worldwide Classics
+- Conduct Together!
+- Crash Team Racing Nitro-Fueled
+- Crayola Scoot
+- Crypt of the Necrodancer
+- Cuphead
+- Dragon Ball Z: Xenoverse 2
+- Dragon Quest Builders 2
+- Dex
+- Diablo III: Eternal Collection
+- Drawful 2
+- Earth Wars
+- Earthlock
+- Fall of Light - Darkest Edition
+- Fitness Boxing
+- For the King
+- Gris
+- Geki Yaba Runner Anniversary Edition
+- Hollow
+- Hungry Shark World
+- Hyper Light Drifter - Special Edition
+- In Between
+- Just Dance 2020
+- Jeopardy!
+- Kamiko
+- Koloro
+- Little Nightmares
+- Mad Age & This Guy
+- NBA 2K19
+- Night Trap - 25th Anniversary Edition
+- Nine Parchments
+- Ninjin: Clash of Carrots
+- No More Heroes 3
+- No Reload Heroes
+- One Strike
+- Overcooked 2
+- Overcooked! Special Edition
+- Phantom Doctrine
+- Pikuniku
+- Pokemon Cafe Remix
+- Pokemon Quest
+- Pokemon TV
+- Pokemon Unite
+- Rayman Legends: Definitive Edition
+- Resident Evil 5
+- Revenge of the Bird King
+- Robonauts
+- Saturday Morning RPG
+- State of Mind
+- SteamWorld Dig
+- SteamWorld Dig 2
+- Stranger Things 3: The Game
+- Tetris 99
+- The Last Remnant Remastered
+- Thief Simulator
+- Timberman VS
+- Trine 2
+- Trine 3: The Artifacts of Power
+- Trine 4: The Nightmare Prince
+- Undertale
+- Unit 4
+- Untitled Goose Game
+- Urban Trial Playground
+- Warframe
+- Watermelon Party
+- Xenoblade Chronicles 2
+- ZenChess
