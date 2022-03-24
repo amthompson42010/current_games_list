@@ -68,3 +68,9 @@
 - Redcard 2003
 - Need For Speed Hot Pursuit 2
 - Donald Duck: Goin' Quackers
+- Spartan Total Warrior
+- Barnyard
+- Battalion Wars
+- X-Men The Official Game
+- Flushed Away
+- Need For Speed Underground

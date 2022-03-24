@@ -21,7 +21,7 @@
 ## [Xbox Original](./Xbox.md)
 <br/>  
 
-## [Xbox 360](./xbox360.md)
+## [Xbox 360](./360.md)
 <br/>  
 
 ## [Xbox Series S](./xboxseriesS.md)

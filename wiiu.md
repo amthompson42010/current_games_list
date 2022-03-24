@@ -15,4 +15,8 @@
 - The Legend of Zelda: The Wind Waker
 - Pokken Tournament
 - Kirby and the Rainbow Curse
-- 
+- Transformers Prime
+- Angry Birds Star Wars
+- Batman Arkham City Armored Edition
+- Lego: The Lego Movie Videogame
+- Terraria

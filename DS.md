@@ -18,3 +18,8 @@
 - Star Wars the Clone Wars Republic Heroes
 - Justice League Heroes
 - Shin Megami Tensei Devil Survivor 2
+- Crash: Mind over Mutants
+- Kirby Super Star Ultra
+- Flushed Away
+- Phineas and Ferb
+- Touch the Dead

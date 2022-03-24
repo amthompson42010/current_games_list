@@ -26,3 +26,7 @@
 - Resident Evil The umbrella chronicles
 - TMNT
 - Nights: Journey of Dreams
+- The Price is Right
+- Smackdown vs Raw 2008
+- Star Wars the Clone Wars
+- WWE 12

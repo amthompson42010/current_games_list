@@ -27,4 +27,22 @@
 - Pokemon Mystery Dungeon Gates to Infinity
 - Kid Icarus Uprising
 - Big Hero 6
-- New Super Mario Bros 
+- New Super Mario Bros
+- Shin Megami Tensei Devil Survivor Overclocked
+- Shin Megami Tensei IV Apocalypse
+- Shin Megami Tensei Strange Journey Redux
+- Persona Q2 New Cinema Labyrinth
+- Persona Q Shadow of the Labyrinth (phys)
+- Pokemon Silver
+- Shin Megami Tensei Devil Summoner Soul Hackers Spokies
+- Fire Emblem Awakening
+- Shin Megami Tensei IV
+- Fire Emblem Shadows of Valentia Echoes
+- Fire Emblem Fates Conquest
+- Dragon Quest VII Fragments of the Forgotten Past
+- Dragon Quest VIII Journey of the Cursed King
+- Kirby Triple Deluxe
+- Yoshi's New Island
+- Kirby's Extra Epic Yarn
+- Kirby Planet Robobot
+- Yoshi's Woolly World

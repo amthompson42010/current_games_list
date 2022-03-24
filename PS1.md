@@ -61,3 +61,5 @@
 - MediEvil
 - Mega Man X5
 - Mega Man X6
+- You Don't Know Jack
+- The Weakest Link

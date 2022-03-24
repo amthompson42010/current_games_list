@@ -124,3 +124,10 @@
 - Valkyria Chronicles
 - X-Men Destiny
 - Yakuza 4
+- Cabela's Dangerous Hunts 2011
+- Cabela's Big Game Hunter 2012
+- Cabela's Dangerous Hunts 2013
+- Cabela's Survival Shadows of the Katmai
+- The Godfather II
+- Lair
+- Time Crisis Razing Storm
